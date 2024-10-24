@@ -1,4 +1,4 @@
-# ✅ Olá me chamao André Messias Roch.
+# ✅ Olá me chamao André Messias Rocha.
 Tenho atualmente 21 anos, estudo progamação e busco minha vaga nesta area
 ### Esperiencias anteriores:
 - ✂ Ja trabalhei como Admistrador de uma Barbearia
